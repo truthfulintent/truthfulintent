@@ -16,8 +16,11 @@
 <summary>☁ small byi</summary>
 
 i make dark//suggestive jokes with people  i am comfortable 
-i am really ambiverted so dont be suprised if i suddenly become talkative 
+
+i am really ambiverted so dont be suprised if i suddenly become talkative
+
 i suck at comforting people the best i can do is justify their problems
+
 yes i am a kusakabe fictkin even before i got in a relationship with zel
 
 </details>
